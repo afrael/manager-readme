@@ -12,7 +12,7 @@ My main job is to help, enable you and **GSD** (Get Stuff Done). I intend to do 
 
 ## Leadership Style
 
-I am a big believers of the servant leadership model.
+I am a big believer of the servant leadership model.
 
 - I serve the team and will be always be available to help.
 - We work for the company, we optimize for the company, I will make mistakes. We will make mistakes. Let's learn, move on and get better. 
@@ -42,7 +42,7 @@ Things I value:
 - Transparency: that's they main key to success.
 - Growth and learning: fail fast, and learn, experiment with clear goals and feedback loops, and help others by sharing your experience.
 - Time: It's valuable, let's not waste it, be intentional, I will be always open to optimization if process is getting in the way and there's understanding and agreement.
-- Stability, consistency and predictability: we should have always remember this.
+- Stability, consistency and predictability: we should always strive for this. Let data tell the story.
 - Critical thinking: It's a must, ask follow up questions, we can always discuss, things don't have to be done in a way because they've always been done this way. Disagreements should not be viewed in a negative light.
 - Empathy: having it will help us build great teams.
 
@@ -55,7 +55,7 @@ I will strive to keep you informed about the team's, department's, and company's
 One-on-ones are time for you, you're the driver of these meetings, it's an open agenda and they're not only about work. We can talk about things like:
 
 - What's on your mind?
-- What's exciting you?
+- What motivates you?
 - What's frustrating or concerning you?
 - What can I do today to make you happier or more productive?
 
@@ -77,6 +77,6 @@ Let me know if I fall short in any of these areas.
 
 ## Work/Life Balance
 
-I highly value work/life balance for both myself and you, as long as we accomplishming our goals and hitting our targets, all is well. I do not expect communication outside of regular hours. I refrain from responding to emails or direct messages during off-hours and do not expect you to do so either, except in emergencies.
+I highly value work/life balance for both myself and you, as long as we're accomplishing our goals and hitting our targets, all is well. I do not expect communication outside of regular hours. I refrain from responding to emails or direct messages during off-hours and do not expect you to do so either, except in emergencies.
 
 

@@ -7,25 +7,25 @@
 My main job is to help, enable you and **GSD** (Get Stuff Done). I intend to do this by:
 
 - Providing context, in the form of information, feedback, suggestions.
-- I will help and do my best to ensure we can create great products, and you feel great doing so.
+- I will do my best to ensure we can create great products, and you feel great doing so.
+- I am here to help, empower and support you.
 
 ## Leadership Style
 
 I am a big believers of the servant leadership model.
-	- I serve the team and will be always be available to help.
-	- We work for the company, we optimize for the company, I will make mistakes. We will make mistakes. Let's learn, move on and get better.
-- Main responsibilities
-  - Provide context, clarity, goals, strategy and vision.
-	- Engage, retain and grow great talent.
-	- I am here to help, empower and support you.
-- I believe in extreme ownership. These core values are:
-	- Leaders are fully accountable.
-	- There are no bad teams, only bad leaders.
-	- Protect the team while making progress towards the goal.
-	- Effective communication and planning are crucial.
-	- The team must be empowered to accomplish the goal and fulfill the vision.
-	- Focus on the most important task, the main thing is the main thing.
-	- Belief that the team will accomplish their mission.
+
+- I serve the team and will be always be available to help.
+- We work for the company, we optimize for the company, I will make mistakes. We will make mistakes. Let's learn, move on and get better. 
+
+I believe in extreme ownership. The core values are:
+
+- Leaders are fully accountable.
+- There are no bad teams, only bad leaders.
+- Protect the team while making progress towards the goal.
+- Effective communication and planning are crucial.
+- The team must be empowered to accomplish the goal and fulfill the vision.
+- Focus on the most important task, the main thing is the main thing.
+- Belief that the team will accomplish their mission.
 
 ## Availability
 
@@ -37,12 +37,14 @@ Communication is key, and being available is crucial.
 
 We build things, products, services, data, let's do the right thing and adjust to meet our goals. Process should help, not get in the way, if you feel you're impeeded by our processes, let's have a conversation, if we agree things need to change, let's make it happen.
 
-- Transparency, that's they main key to success.
-- I value growth and learning, fail fast, and learn, experiment with clear goals and feedback loops, and help others by sharing your experience.
-- Time is valuable, let's not waste it, I will be always open to optimization if process is getting in the way and there's understanding and agreement.
-- Stability, consistency and predictability, we should have always remember this.
-- Critical thinking is a must, ask follow up questions, we can always discuss, things don't have to be done in a way because they've always been done this way. Disagreements should not be viewed in a negative light.
-- Empathy, having it will help us build great teams.
+Things I value:
+
+- Transparency: that's they main key to success.
+- Growth and learning: fail fast, and learn, experiment with clear goals and feedback loops, and help others by sharing your experience.
+- Time: It's valuable, let's not waste it, be intentional, I will be always open to optimization if process is getting in the way and there's understanding and agreement.
+- Stability, consistency and predictability: we should have always remember this.
+- Critical thinking: It's a must, ask follow up questions, we can always discuss, things don't have to be done in a way because they've always been done this way. Disagreements should not be viewed in a negative light.
+- Empathy: having it will help us build great teams.
 
 ## Transparency
 

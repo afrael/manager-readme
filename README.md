@@ -1,6 +1,13 @@
 # My Manager README
 
+¡Hola! I’m Afrael, welcome!
+
 ## My Job
+
+My main job is to help, enable you and **GSD** (Get Stuff Done). I intend to do this by:
+
+- Providing context, in the form of information, feedback, suggestions.
+- I will help and do my best to ensure we can create great products, and you feel great doing so.
 
 ## Leadership Style
 
